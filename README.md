@@ -1,2 +1,2 @@
-# sonoyuncub-y-botu
-discord.gg/1024
+# Discord oxygenqqw
+कभी-कभी चीजें योजना के अनुसार नह
